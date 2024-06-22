@@ -1,0 +1,1 @@
+# fire-detection-master-slashmark-adv-project
